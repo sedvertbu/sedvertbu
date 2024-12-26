@@ -5,7 +5,7 @@ sdffgm- 👋 Hi, I’m @sedvertbu
 - 📫 How to reach me ...55fghfdslio
 - 😄 Pronouns: ...665rew855563
 - ⚡ Fun fact: ...vxzc
-55554
+555544554
 23
 <!---
 sedvertbu/sedvertbu is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
