@@ -2,7 +2,7 @@ sdffgm- 👋 Hi, I’m @sedvertbu
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...55
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...55fghfdslioio;
+- 📫 How to reach me ...55fghfdslioio;2344
 - 😄 Pronouns: ...665rew855563
 - ⚡ Fun fact: ...vxzc26
 23
