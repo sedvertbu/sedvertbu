@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...55
 - 💞️ I’m looking to collaborate on ...638596
-- 📫 How to reach me ...55fghfdslioio;23443
+- 📫 How to reach me ...55fghfdslioio;23443k.l
 - 3032
 - 😄 Pronouns: ...665rew85556325
 - ⚡ Fun fact: ...vxzc262353
