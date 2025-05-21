@@ -6,7 +6,7 @@ fw8455dcxv8sdffgm- 👋 Hi, I’m @sedvertbu
 - grregegwgewe
 - 😄 Pronouns: ...665rew85556325htrwredsfdsffsxfwegrefdgfgdffdfd
 - ⚡ Fun fact: ...vxzc262353regregewwwwfdddergge
-239695gjm3eeevnbbbvhgfhggghg
+239695gjm3eeevnbbbvhgfhggghgfwefewwef
 <!---dfdsf87fsопоfgfdddsx
 sedvertbu/sedvertbu is a ✨ special ✨ repository because its `README.md` (t25his file55dd) acxxppears on your GitHub fddfdffdprofile.
 You can click the Prevgr--rgereggreregf
