@@ -1,5 +1,5 @@
 fw8455dcxv8sdffgm- 👋 Hi, I’m @sedvertbu
-- 👀 I’m interested in ...ghm95895
+- 👀 I’m interested in ...ghm95895866887678
 - 🌱 I’m currently learning ...559996kuiku
 - 💞️ I’m looking to collaborate on ...638596jh48grstgrbgffdsehrasassdddkydkxcvcxvsdfnghnhvccvcvbsbfsbsg
 - 📫 How to reach me ...55fghfdslioio;23443k.l1233112129+-9tu58+hteetersdfsdfsdsdffddsf
